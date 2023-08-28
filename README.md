@@ -17,6 +17,7 @@ Here are some ideas to get you started:
 
 ## 🌱
 안녕하세요. 잘 부탁드립니다.
+uyzero1@gmail.com
 <br />
 <br />
 <br />
